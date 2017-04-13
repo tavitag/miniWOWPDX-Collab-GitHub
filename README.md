@@ -37,7 +37,7 @@ Booze be present!
 
 No themes!  Just bring yourself for some dancing!
 
-![](https://media.giphy.com/media/HB23IM619qFtS/giphy.gif)
+![](https://media.giphy.com/media/Ta1zCPgNNr2GQ/giphy.gif)
 
 ![](http://cultofthepartyparrot.com/parrots/reversecongaparrot.gif)
 ![](http://cultofthepartyparrot.com/parrots/reversecongaparrot.gif)
