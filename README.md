@@ -56,3 +56,6 @@ No themes!  Just bring yourself for some dancing!
 ![](http://cultofthepartyparrot.com/parrots/reversecongaparrot.gif)
 ![](http://cultofthepartyparrot.com/parrots/reversecongaparrot.gif)
 ![](http://cultofthepartyparrot.com/parrots/reversecongaparrot.gif)
+
+:fire: FRIDAY GITHUB PARTY! :fire:
+![](https://media.giphy.com/media/26FmS6YaEo3pobUKQ/giphy.gif)
